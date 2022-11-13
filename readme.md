@@ -1,0 +1,1 @@
+Meu projeto dos componentes de computadores para como você deve escolher para utilizar a melhor configuração no que precisa!
